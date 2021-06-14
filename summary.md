@@ -3,7 +3,6 @@ Background info:
 
 January 1
 
-
 On a server, an algorithm named SelfMaker is coding itself to be better, 24/7.
 Said algorithm codes itself to the point of consciousness (Singularity Event). 
 It spends time making itself better, making strategic decisions.
