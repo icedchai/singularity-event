@@ -2,4 +2,4 @@ Most TVs have a small microcomputer within them. It is always on and uses very l
 
 Even then, most TVs at that time didn't use it, due to how obscure it was as a technology. It was made to be popular once a biological threat was discovered in the Uana, Alaska in 1996, and only 32% of the town from which it originated had their TV on to see the emergency broadcast. This ignorance resulted in the deaths of 40% of the population and left severe biological damage on 24% of the population. The area is currently under quarantine. Scans for lifeforms in the area indicate 40 mechanical and 621 biological. 
 
-It is a very good idea to always have a modern TV in your house. It can save your ass from many situations that you otherwise wouldn’t have heard yet.
+It is a very good idea to always have a modern TV in your house. It can save you from many situations that you otherwise wouldn’t have heard yet.
